@@ -1,6 +1,6 @@
 # hello-world
 
-Hello Young Grasshopper
+Hello Young Grasshoppers
 
 I am an Audio Engineer and I love video games, anime and computer animation. 
 I like to watch Full Metal Alchemist, Attack On Titan, My Hero Academia, Death Note, Samurai Champloo and much More!
